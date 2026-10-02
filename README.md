@@ -134,7 +134,7 @@ When changes are made, the updated version will be published at this location wi
 
 If you have questions about this Privacy Policy or the privacy practices of SMS Forwarder, please contact:
 
-**Email:** [YOUR_SUPPORT_EMAIL]
+**Email:** contact_zmohi@​aol.com
 
 ---
 
